@@ -1,0 +1,2 @@
+# So-rovnomam
+Buxdu yoshlari
